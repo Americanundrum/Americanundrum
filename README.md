@@ -1,7 +1,11 @@
 <p align="center">
+<img width="300" src=https://imgur.com/InXIDYK>
+<p align="center">
 |Fjord|
 <p align="center">
 |He.Him|
+<p align="center">
+<img width="" src=>
 <p align="center">
 <sup>Down with the traitors! Up with the stars!</sup>
 
@@ -9,11 +13,17 @@
 <p align="center">
 I have very crude humor which invoves sexual/violent remarks towards my friends and saying slurs I can reclaim. If you're not comfortable with this, tell me.
 <p align="center">
+<img width="200" src=https://imgur.com/c4W1CsZ>
+<p align="center">
 I have a general distaste for MOST of the [CH] ships I see, but I won't outright assail them until it's Rusame or Sovreich. 
 <p align="center">
 <sub>"But but- Fjord! Let people ship what they want! It isn't harming you!</sub> Jump. I have the full freedom to hate whatever ship I want. Yes that includes the ones that people like to tell me about. Just because I didn't say anything when you were talking about your little OTP doesn't mean I think it's utterly stupid.
 <p align="center">
+<img width="200" src=https://imgur.com/MyQdqzA>
+<p align="center">
 I sometimes do end up talking about sensitive topics like abuse or SH, but most of the time it's always in regards to my OCs. Of course, this doesn't mean i condone any of it. If you find that uncomfortable, I won't talk about it.
+<p align="center">
+<img width="200" src=https://imgur.com/JkSRUH3>
 
 ## About me
 <p align="center">

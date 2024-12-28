@@ -15,7 +15,7 @@
 <p align="center">
 I have very crude humor which invoves sexual/violent remarks towards my friends and saying slurs I can reclaim. If you're not comfortable with this, tell me.
 <p align="center">
-<img width="300" src=https://imgur.com/c4W1CsZ.png>
+<img width="300" src=https://imgur.com/xcukZDV.png>
 <p align="center">
 I have a general distaste for MOST of the [CH] ships I see, but I won't outright assail them until it's Rusame or Sovreich. 
 <p align="center">
@@ -25,7 +25,7 @@ I have a general distaste for MOST of the [CH] ships I see, but I won't outright
 <p align="center">
 I sometimes do end up talking about sensitive topics like abuse or SH, but most of the time it's always in regards to my OCs. Of course, this doesn't mean i condone any of it. If you find that uncomfortable, I won't talk about it.
 <p align="center">
-<img width="300" src=https://imgur.com/JkSRUH3.png>
+<img width="300" src=https://i.imgur.com/XkAlCQc.png>
 
 
 ## About me

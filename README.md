@@ -32,9 +32,9 @@ I sometimes do end up talking about sensitive topics like abuse or SH, but most 
 <p align="center">
 <img width="200" src=https://imgur.com/GdCDJ0n.png>
 <p align="center">
-My name is Fjord. You can call me whichever you see fit, though, none of it is really of my concern. I have itnerest in many things, but the fandoms that I'm most active in are CH and G&B, where I tend to make the most art about. Fair hint? If you show me your OC and yap about them a little, there's a high probability I'll draw them. 
+My name is Fjord. You can call me whichever you see fit, though, none of it is really of my concern. I have interest in many things, but the fandoms that I'm most active in are CH and G&B, where I tend to make the most art about. Fair hint? If you show me your OC and yap about them a little, there's a high probability I'll draw them. 
 <p align="center">
 I find interest in conservation and US history (large surprise we've got here), so I don't think it's too surprising as to why I have all this on this page. I like to listen to industrial metal and talk to my friends too.
 
 ## Userbox time!
-<img width="100" src=.png>
+<img width="100" src=.png> (coming soon)

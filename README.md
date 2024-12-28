@@ -19,7 +19,7 @@ I have very crude humor which invoves sexual/violent remarks towards my friends 
 <p align="center">
 I have a general distaste for MOST of the [CH] ships I see, but I won't outright assail them until it's Rusame or Sovreich. 
 <p align="center">
-<sub>"But but- Fjord! Let people ship what they want! It isn't harming you!</sub> Jump. I have the full freedom to hate whatever ship I want. Yes that includes the ones that people like to tell me about. Just because I didn't say anything when you were talking about your little OTP doesn't mean I think it's utterly stupid.
+<sub>"But but- Fjord! Let people ship what they want! It isn't harming you!</sub> Jump. I have the full freedom to hate whatever ship I want. Yes that includes the ones that people like to tell me about. Just because I didn't say anything when you were talking about your little OTP doesn't mean I think it isn't utterly stupid.
 <p align="center">
 <img width="300" src=https://imgur.com/MyQdqzA.png>
 <p align="center">

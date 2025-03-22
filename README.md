@@ -23,7 +23,7 @@ I have a general distaste for MOST of the [CH] ships I see. I think the most obv
 <p align="center">
 <sub>So overall just don't talk about them at all.</sub> Or I will probably make fun of you. Yk. :~)
 <p align="center">
-<img width="300" src=https://imgur.com/MyQdqzA.png><img width="300" src=https://imgur.com/MyQdqzA.png>
+<img width="300" src=https://imgur.com/VJzo5zN.png><img width="300" src=https://imgur.com/VJzo5zN.png>
 <p align="center">
 I sometimes do end up talking about sensitive topics like abuse or SH, but most of the time it's always in regards to my OCs. Of course, this doesn't mean i condone any of it. If you find that uncomfortable, I won't talk about it.
 <p align="center">
@@ -31,7 +31,7 @@ I sometimes do end up talking about sensitive topics like abuse or SH, but most 
 
 ## About me
 <p align="center">
-<img width="200" src=https://imgur.com/GdCDJ0n.png>
+─ ⊹ ⊱⊹₊⋆ <img width="200" src=https://imgur.com/UZ53pbO.png> ⊹₊⋆⊰ ⊹ ─
 <p align="center">
 My name is Fjord. You can call me whichever you see fit! I have interest in many things, but the fandoms that I'm most active in are CH and G&B, where I tend to make the most art about. Fair hint? If you show me your OC and yap about them a little, there's a high probability I'll draw them. I really like my friends' OCs!!
 <p align="center">
@@ -39,5 +39,13 @@ I find interest in conservation and US history (large surprise we've got here), 
 <p align="center">
 <img src=https://imgur.com/PPTBCR3.png><img src=https://imgur.com/UnGFd9I.png><img src=https://imgur.com/yHgQodi.png><img src=https://imgur.com/LNSgXLw.png>
 
-## Userbox time!
-<img width="100" src=.png> (coming soon)
+## Wikipedia userboxes <3
+<p align="center">
+<img width="130" src=https://imgur.com/tXjNa4Q.png>
+<p align="center">
+<img width="200" src=https://imgur.com/Rjarwa9.png>٠ ࣪⭑<img width="200" src=https://imgur.com/XcXzgBb.png>٠ ࣪⭑<img width="200" src=https://imgur.com/38rZBuO.png>٠ ࣪⭑<img width="200" src=https://imgur.com/ED1Q5me.png>٠ ࣪⭑<img width="200" src=https://imgur.com/xudm8Oy.png>٠ ࣪⭑<img width="200" src=https://imgur.com/ipb8moZ.png>٠ ࣪⭑
+  
+<p align="center">
+─ ⊹ ⊱⊹₊⋆ <img width="130" src=https://imgur.com/4lRYPvx.png> ⊹₊⋆⊰ ⊹ ─
+<p align="center">
+<img width="200" src=https://imgur.com/rFHab2F.png>٠ ࣪⭑<img width="200" src=https://imgur.com/SKhpPnr.png>٠ ࣪⭑<img width="200" src=https://imgur.com/ARIcdYy.png>٠ ࣪⭑<img width="200" src=https://imgur.com/YRu8hga.png>٠ ࣪⭑<img width="200" src=https://imgur.com/EUtu7wD.png>٠ ࣪⭑

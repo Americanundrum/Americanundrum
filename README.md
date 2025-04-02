@@ -25,7 +25,7 @@ I have very crude humor which invoves sexual/violent remarks towards my friends 
 <p align="center">
 <img width="300" src=https://imgur.com/xcukZDV.png><img width="300" src=https://imgur.com/xcukZDV.png>
 <p align="center">
-I have a general distaste for MOST of the [CH] ships I see. I think the most obvious two are RusAme and ThirdSov. Just personal preferences though, if you ship this I'll probably bully you so yea don't bring it up gang.
+I have a general distaste for MOST of the [CH] ships I see. I think the most obvious two are RusAme and ThirdSov. Just personal preferences though, if you ship this and you interact with me I won't be up to much. In general, I don't talk about ships at all (why do people want to talk to me about it so bad? I don't care.)
 <p align="center">
 <sub>So overall just don't talk about them at all.</sub> Or I will probably make fun of you. Yk. :~)
 <p align="center">

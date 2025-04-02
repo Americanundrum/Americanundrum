@@ -12,6 +12,8 @@
 <sup>Down with the traitors! Up with the stars!</sup>
 <p align="center">
 ︶  ྀི◟  ͜◞˚̣̣̣𓏴<img src=https://imgur.com/L9flC7g.png>˚̣̣̣◟  ͜◞ ྀི︶︶  ྀི◟  ͜◞˚̣̣̣𓏴<img src=https://imgur.com/s5Jm05a.png>˚̣̣̣◟  ͜◞ ྀི︶︶  ྀི◟  ͜◞˚̣̣̣𓏴<img src=https://imgur.com/vNL5Uxh.png>˚̣̣̣◟  ͜◞ ྀི︶
+<p align="center">
+⸝⸝⁀➴<img width="200" src=https://imgur.com/xAHFntQ.png>┇<img width="200" src=https://imgur.com/KHsD6oE.png>┇<img width="200" src=https://imgur.com/cYTcOzq.png>˚ ༘ ೀ⋆｡˚ᛝ𐙚
 
 ## BYI..
 <p align="center">

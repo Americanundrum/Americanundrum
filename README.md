@@ -43,9 +43,9 @@ I find interest in conservation and US history (large surprise we've got here), 
 <p align="center">
 <img width="130" src=https://imgur.com/tXjNa4Q.png>
 <p align="center">
-<img width="200" src=https://imgur.com/Rjarwa9.png>٠ ࣪⭑<img width="200" src=https://imgur.com/XcXzgBb.png>٠ ࣪⭑<img width="200" src=https://imgur.com/38rZBuO.png>٠ ࣪⭑<img width="200" src=https://imgur.com/ED1Q5me.png>٠ ࣪⭑<img width="200" src=https://imgur.com/xudm8Oy.png>٠ ࣪⭑<img width="200" src=https://imgur.com/ipb8moZ.png>٠ ࣪⭑
+<img width="200" src=https://imgur.com/Rjarwa9.png>٠ ࣪⭑<img width="200" src=https://imgur.com/XcXzgBb.png>٠ ࣪⭑<img width="200" src=https://imgur.com/38rZBuO.png>٠ ࣪⭑<img width="200" src=https://imgur.com/ED1Q5me.png>٠ ࣪⭑<img width="200" src=https://imgur.com/xudm8Oy.png>٠ ࣪⭑<img width="200" src=https://imgur.com/ipb8moZ.png>٠ ࣪⭑<img width="200" src=https://imgur.com/IuQMB97.png>٠ ࣪⭑
   
 <p align="center">
 ─ ⊹ ⊱⊹₊⋆ <img width="130" src=https://imgur.com/4lRYPvx.png> ⊹₊⋆⊰ ⊹ ─
 <p align="center">
-<img width="200" src=https://imgur.com/rFHab2F.png>٠ ࣪⭑<img width="200" src=https://imgur.com/SKhpPnr.png>٠ ࣪⭑<img width="200" src=https://imgur.com/ARIcdYy.png>٠ ࣪⭑<img width="200" src=https://imgur.com/YRu8hga.png>٠ ࣪⭑<img width="200" src=https://imgur.com/EUtu7wD.png>٠ ࣪⭑
+<img width="200" src=https://imgur.com/rFHab2F.png>٠ ࣪⭑<img width="200" src=https://imgur.com/SKhpPnr.png>٠ ࣪⭑<img width="200" src=https://imgur.com/ARIcdYy.png>٠ ࣪⭑<img width="200" src=https://imgur.com/YRu8hga.png>٠ ࣪⭑<img width="200" src=https://imgur.com/EUtu7wD.png>٠ ࣪⭑<img width="200" src=https://imgur.com/zqppFEs.png>٠ ࣪⭑<img width="200" src=.png>

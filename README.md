@@ -41,7 +41,7 @@ I sometimes do end up talking about sensitive topics like abuse or SH, but most 
 <p align="center">
 My name is Fjord. You can call me whichever you see fit! I have interest in many things, but the fandoms that I'm most active in are CH and G&B, where I tend to make the most art about. Fair hint? If you show me your OC and yap about them a little, there's a high probability I'll draw them. I really like my friends' OCs!!
 <p align="center">
-I find interest in conservation and US history (large surprise we've got here), so I don't think it's too surprising as to why I have all this on this page. I like to listen to industrial metal and talk to my friends too. I'm working to get better at tree ID, and I'm also currently gathering America memorium because I adore the culture and history of it all.
+I find interest in conservation and US history (large surprise we've got here), so I don't think it's too surprising as to why I have all this on this page. I like to listen to industrial metal and talk to my friends too. I'm working to get better at tree ID, and I'm also currently gathering America memorium because I adore the culture and history of it all. I also like Transformers, Bioshock, Pacific Rim, Wings of Fire, and Ben 10. I'm insane about aliens! I love speculative biology/evolution, my favorite projects include Project Isla! If you have any alien ocs, give them to me NOW! I am incredibly abductable.
 <p align="center">
 <img src=https://imgur.com/PPTBCR3.png><img src=https://imgur.com/UnGFd9I.png><img src=https://imgur.com/yHgQodi.png><img src=https://imgur.com/LNSgXLw.png>
 

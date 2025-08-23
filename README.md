@@ -1,5 +1,5 @@
 <p align="center">
-<img width="100" src=https://imgur.com/XW2iliy.png><img width="300" src=https://imgur.com/TgYcbuC.png><img width="100" src=https://imgur.com/tCTJRnU.png>
+<img width="100" src=https://imgur.com/kypwnfA.png><img width="300" src=https://imgur.com/TgYcbuC.png><img width="100" src=https://imgur.com/kypwnfA.png>
 <p align="center">
 |Fjord|
 <p align="center">

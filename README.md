@@ -1,7 +1,7 @@
 <p align="center">
 <img width="70" src=https://imgur.com/N7nvCw0.png> <img width="70" src=https://imgur.com/kypwnfA.png><img width="300" src=https://imgur.com/TgYcbuC.png><img width="70" src=https://imgur.com/kypwnfA.png><img width="70" src=https://imgur.com/N7nvCw0.png>
 <p align="center">
-|Fjord|
+|Kalv|
 <p align="center">
 |He.Him|
 <p align="center">
@@ -25,9 +25,9 @@ I have very crude humor which invoves sexual/violent remarks towards my friends 
 <p align="center">
 <img width="300" src=https://imgur.com/xcukZDV.png><img width="300" src=https://imgur.com/xcukZDV.png>
 <p align="center">
-I have a general distaste for MOST of the [CH] ships I see. I think the most obvious two are RusAme and ThirdSov. Just personal preferences though, if you ship this and you interact with me I won't be up to much. In general, I don't talk about ships at all (why do people want to talk to me about it so bad? I don't care.)
+I have a general distaste for MOST of the [CH] ships I see. I think the most obvious two are RusAme and ThirdSov. Just personal preferences though, if you ship this and you interact with me, it will be one of the last things I'd prefer to talk about. In general, I don't talk about ships at all (why do people want to talk to me about it so bad? I don't care.)
 <p align="center">
-<sub>So overall just don't talk about them at all.</sub> Or I will probably make fun of you. Yk. :~)
+<sub>So overall just don't talk about them at all.</sub>
 <p align="center">
 <img width="300" src=https://imgur.com/VJzo5zN.png><img width="300" src=https://imgur.com/VJzo5zN.png>
 <p align="center">
@@ -39,13 +39,13 @@ I sometimes do end up talking about sensitive topics like abuse or SH, but most 
 <p align="center">
 ─ ⊹ ⊱⊹₊⋆ <img width="200" src=https://imgur.com/UZ53pbO.png> ⊹₊⋆⊰ ⊹ ─
 <p align="center">
-My name is Fjord. You can call me whichever you see fit! I have interest in many things, but the fandoms that I'm most active in are CH and G&B, where I tend to make the most art about. Fair hint? If you show me your OC and yap about them a little, there's a high probability I'll draw them. I really like my friends' OCs!!
+I like my friends.
 <p align="center">
-I find interest in conservation and US history (large surprise we've got here), so I don't think it's too surprising as to why I have all this on this page. I like to listen to industrial metal and talk to my friends too. I'm working to get better at tree ID, and I'm also currently gathering America memorium because I adore the culture and history of it all. I also like Transformers, Bioshock, Pacific Rim, Wings of Fire, and Ben 10. I'm insane about aliens! I love speculative biology/evolution, my favorite projects include Project Isla! If you have any alien ocs, give them to me NOW! I am incredibly abductable.
+I like US history, conservation, currently majoring in forest biology, and I'm active in a few historical fandoms.
 <p align="center">
 <img src=https://imgur.com/PPTBCR3.png><img src=https://imgur.com/UnGFd9I.png><img src=https://imgur.com/yHgQodi.png><img src=https://imgur.com/LNSgXLw.png>
 
-## Wikipedia userboxes <3
+## userboxes
 <p align="center">
 <img width="130" src=https://imgur.com/tXjNa4Q.png>
 <p align="center">

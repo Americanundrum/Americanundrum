@@ -21,7 +21,7 @@
 
 ## BYI..
 <p align="center">
-I have very crude humor which invoves sexual/violent remarks towards my friends and saying slurs I can reclaim. If you're not comfortable with this, tell me.
+I have very crude humor which invoves sexual/violent remarks towards my friends and saying slurs I can reclaim. If you're not comfortable with this, tell me. It must be known that when I say this, I don't mean that I jokingly insult or dismiss them. I ask of you to PLEASE not insult or dismiss me regardless of how close we are, it's hurtful and I still have friends who do this to me despite my requests to stop. Do not be one of these people. I will not be fond of you if you do this, and I like it when my emotions are taken seriously.
 <p align="center">
 <img width="300" src=https://imgur.com/xcukZDV.png><img width="300" src=https://imgur.com/xcukZDV.png>
 <p align="center">

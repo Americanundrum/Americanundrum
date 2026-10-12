@@ -19,6 +19,8 @@
 <p align="center">
 ─ ⊹ ⊱⊹₊⋆[Americanundrim]⊹₊⋆⊰ ⊹ ─
 
+# HEY. IMPORTANT ANNOUNCEMENT TO ANYONE WHO HAS READ THIS. I AM CURRENTLY IN A RATHER PITIFUL STATE OF MIND. IF I HAVE UNADDED YOU FOR ANY REASON (AND THERE ARE MANY OF YOU), YOU CAN RE-ADD ME. I AM DOING THIS FOR MENTAL HEALTH REASONS. I DO NOT HATE YOU. UNLESS YOUR NAME IS SVINA 😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂
+
 ## BYI..
 <p align="center">
 I have very crude humor which invoves sexual/violent remarks towards my friends and saying slurs I can reclaim. If you're not comfortable with this, tell me. It must be known that when I say this, I don't mean that I jokingly insult or dismiss them. I ask of you to PLEASE not insult or dismiss me regardless of how close we are, it's hurtful and I still have friends who do this to me despite my requests to stop. Do not be one of these people. I will not be fond of you if you do this, and I like it when my emotions are taken seriously.
